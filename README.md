@@ -11,5 +11,3 @@
 - Bees are pretty cool, but wasps are not.
 
 ## LITERALLY ANYTHING
-
-- My Boss IS AWESOME 
